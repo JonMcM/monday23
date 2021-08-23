@@ -1,4 +1,6 @@
 # monday23
 Project for Monday 23 Aug Chris M. 
 
-Hi everyone, what he said 
+I started this for a morning project. 
+Im interested in 👻 🏒 🚬
+
